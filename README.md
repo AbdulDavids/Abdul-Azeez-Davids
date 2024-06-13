@@ -1,3 +1,6 @@
+
+![](https://media.licdn.com/dms/image/C5603AQFfhKBYRTUZhQ/profile-displayphoto-shrink_800_800/0/1642848867326?e=1723680000&v=beta&t=j9H-falAyxAquJmWPwocx08Sx6r6kzTTQtDumHwLjVk)
+
 ## Abdul Davids
 **Head of Research at Camissa Asset Management**  
 City of Cape Town, Western Cape, South Africa  
